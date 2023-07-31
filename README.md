@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Normaa00
-- 👀 I’m interested in things
+- 👀 I’m interested in thingsfgd
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on .hgf
 - 📫 How to reach me ...
