@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Normaa00
 - 👀 I’m interested in thingsfgd
 - 🌱 I’m currently learning ...d
-- 💞️ I’m looking to collaborate on .hgf
+- 💞️ I’m looking to collaborate on .hgfsd
 - 📫 How to reach me ...
 dsdsa
 <!-
