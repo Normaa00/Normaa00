@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Normaa00
 - 👀 I’m interested in thingsfgd
-- 🌱 I’m currently learning ...dS
+- 🌱 I’m currently learning ...dSçç
 - 💞️ I’m looking to collaborate on .hgfsdjjj
 - 📫 How to reach me ...
 dsdsa
